@@ -1,1 +1,2 @@
-- 👋 Hi, I’m @gbrljp
+Olá, eu sou o Gabriel!
+IG: @gbrl.jp
